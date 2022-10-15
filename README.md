@@ -1,1 +1,1 @@
-**Rule Seeker** intends to be a "Real Person Fiction" fantasy roleplaying game.
+**Rule Seeker** intends to be a "real person fiction" fantasy roleplaying game. It intends to be a self-creating game that finds legal, ethical, even friendly ways to describe the rules used to govern the lowest quarter of the first or lunar (alternately Garden of Eden if you're down here in the Earthly version of it) level of our universe.
